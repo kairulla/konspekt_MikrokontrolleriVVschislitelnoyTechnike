@@ -1,0 +1,1 @@
+<img src="IMG20221009141554.jpg" width=100% align="middle"><img src="IMG20221009141636.jpg" width=100% align="middle"><img src="IMG20221009141650.jpg" width=100% align="middle"><img src="IMG20221009141711.jpg" width=100% align="middle">
